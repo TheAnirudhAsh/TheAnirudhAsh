@@ -9,7 +9,7 @@
 
 
 ### CURRENTLY PURSUING 👨‍🎓
-### Certificate of Tatical Analysis - Barca Innovation Hub       
+### Certificate in Football Tactical Analysis - Barca Innovation Hub       
 link --> https://elearning.barcainnovationhub.com/product/certificate-in-football-tactical-analyst/
 
 <!--
